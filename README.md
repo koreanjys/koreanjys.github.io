@@ -1,2 +1,0 @@
-# koreanjys.github.io
-Portfolio
